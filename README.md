@@ -2,7 +2,7 @@
 - 🌱 I’m currently learning ... Everything
 - 👯 I’m looking to collaborate on ... Everything
 - 🤔 I’m looking for help with ... Everything
-- 💬 Ask me about ... Anything
+- 💬 Ask me about ... Everything
 - 📫 How to reach me: ... Discord
 - 😄 Pronouns: ... I really don't care
 - ⚡ Fun fact: ... I am better than you
